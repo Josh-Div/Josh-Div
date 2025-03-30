@@ -10,5 +10,5 @@
 
 😄 Pronouns: He/Him
 
-⚡ Fun fact: I once tried to make a microwave into a Playstation 7 just for fun!
+⚡ Fun fact: I once tried to make a microwave into a Playstation 7 just for fun!😆
 
